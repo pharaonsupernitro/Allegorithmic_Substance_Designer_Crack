@@ -1,0 +1,1 @@
+# Allegorithmic_Substance_Designer_Crack
